@@ -9,7 +9,7 @@ Below is a summary of my professional and educational background.
 
 ## Employment
 __National Chengchi University__\
- Assistant Professor <br> <br>
+ Assistant Professor in Marketing, Business Administration Department <br> <br>
 
 ## Education
 __King's Business School, King's College London__\
